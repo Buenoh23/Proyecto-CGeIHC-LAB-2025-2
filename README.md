@@ -1,1 +1,0 @@
-# Proyecto-CGeIHC-LAB-2025-2
